@@ -1,1 +1,1 @@
-I've done as many of the programs as there are, maybe there are a few more left… if there are any extra, it would be 5 to 7 at most.
+I've completed almost all the programs—there might just be a few left, no more than five to seven at most.
